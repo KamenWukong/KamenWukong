@@ -1,4 +1,4 @@
-## <p align="center"> SHHH WIP
+ > ### <p align="center"> *"Existing is not a crime!!!"*
 
 <p align="center">
 ✩ AFK / Off-Tab most of the time, down for whispers but I may not reply! ✩
@@ -8,6 +8,15 @@
 <p align="center">
 ✩ Proshippers DNI for obvious reasons ✩
 <p align="center">
+✩ WIP ✩
+<p align="center">
+✩
+<p align="center">
+✩
+<p align="center">
+✩
+
+<p align="center">
 ✩ 🏳️‍⚧️ ✩
 
 <p align="center">
@@ -16,7 +25,5 @@
 Rule #7 - Angel Tango
 
 
-
-
 <p align="center">
-✩ Warning that I am a little hesistant to talk about shipping in general, so unless I know you nuh uhhh ✩
+✩ Warning that I am a little hesistant to talk about shipping in general, so unless I know you're chill nuh uhhh ✩
