@@ -8,11 +8,11 @@
 <p align="center">
 ✩ Proshippers DNI for obvious reasons ✩
 <p align="center">
-✩ I love hearing people yap about their interests ✩
-<p align="center">
-✩ If I don't yap back it's not because I don't like you, my brain's just fried ✩
+✩ I love Warframe please talk to me about it pleasepleaseple ✩
 <p align="center">
 ✩ I don't use tone tags, but if you need them i'm fine using them of course ✩
+<p align="center">
+✩ I love hearing people yap about their interests! If I don't yap back it's not because I don't like you, my brain's just fried ✩
 <p align="center">
 ✩ WIP ✩
 <p align="center">
