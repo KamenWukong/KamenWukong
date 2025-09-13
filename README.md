@@ -1,14 +1,13 @@
- > ### <p align="center"> *"Existing is not a crime!!!"*
+ > ## <p align="center"> *"Existing is not a crime!!!"*
 
 <p align="center">
 ✩ AFK / Off-Tab most of the time, down for whispers but I may not reply! ✩
-
 <p align="center">
-✩ Multifandom except I rarely interact with the fandoms ✩
+✩ Sleeping = AFK / Off-Tab ✩
 <p align="center">
 ✩ Proshippers DNI for obvious reasons ✩
 <p align="center">
-✩ I love Warframe please talk to me about it pleasepleaseple ✩
+✩ Multifandom except I rarely interact with the fandoms ✩
 <p align="center">
 ✩ I don't use tone tags, but if you need them i'm fine using them of course ✩
 <p align="center">
