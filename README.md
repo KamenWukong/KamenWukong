@@ -25,9 +25,9 @@
 ✩ 🏳️‍⚧️ ✩
 
 <p align="center">
-1:28 ───|────── 4:26
+0:43 ──|─────── 3:05
 <p align="center">
-Rule #7 - Angel Tango
+Delirium Tremendous - Felix Hagan & the Family
 
 
 <p align="center">
