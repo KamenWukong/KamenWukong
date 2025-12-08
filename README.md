@@ -31,4 +31,4 @@ Delirium Tremendous - Felix Hagan & the Family
 
 
 <p align="center">
-✩ Warning that I am a little hesistant to talk about shipping in general, so unless I know you're chill nuh uhhh ✩
+✩ Warning I mute weirdos ✩
