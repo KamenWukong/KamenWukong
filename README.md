@@ -15,7 +15,7 @@
 <p align="center">
 ✩ I mute weirdos, no warnings- if you're nasty you're nasty ✩
 <p align="center">
-✩
+✩ I get defensive for friends, just be polite and we're good ✩
 <p align="center">
 ✩
 <p align="center">
