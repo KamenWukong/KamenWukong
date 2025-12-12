@@ -13,7 +13,7 @@
 <p align="center">
 ✩ I love hearing people yap about their interests! If I don't yap back it's not because I don't like you, my brain's just fried ✩
 <p align="center">
-✩ WIP ✩
+✩ I mute weirdos, no warnings- if you're nasty you're nasty ✩
 <p align="center">
 ✩
 <p align="center">
@@ -31,4 +31,4 @@ Delirium Tremendous - Felix Hagan & the Family
 
 
 <p align="center">
-✩ Warning I mute weirdos ✩
+✩ Blows up pancakes with mind ✩
