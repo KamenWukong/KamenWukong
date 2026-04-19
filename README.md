@@ -11,7 +11,7 @@
 <p align="center">
 ✩ I don't use tone tags, but if you need them i'm fine using them of course ✩
 <p align="center">
-✩ I love hearing people yap about their interests! If I don't yap back it's not because I don't like you, my brain's just fried ✩
+✩ I love hearing people talk about their interests! If I don't yap back it's not because I don't like you, my brain's just fried ✩
 <p align="center">
 ✩ I mute weirdos, no warnings- if you're nasty you're nasty ✩
 <p align="center">
