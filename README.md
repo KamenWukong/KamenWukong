@@ -28,7 +28,7 @@
 <p align="center">
 0:39 ──|─────── 3:05
 <p align="center">
-Superfast Jellyfish - Gorillaz, Guff Rhys, De La Soul
+Superfast Jellyfish - Gorillaz, Gruff Rhys, De La Soul
 
 
 <p align="center">
