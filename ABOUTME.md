@@ -20,16 +20,16 @@
 ✩
 <p align="center">
 ✩
-<p align="center">
+ <p align="center">
 ✩
 <p align="center">
 ✩ 🏳️‍⚧️ ✩
 
 <p align="center">
-0:43 ──|─────── 3:05
+0:39 ──|─────── 3:05
 <p align="center">
-Delirium Tremendous - Felix Hagan & the Family
+Superfast Jellyfish - Gorillaz, Guff Rhys, De La Soul
 
 
 <p align="center">
-✩ Blows up pancakes with mind ✩
+✩ Recommend me some music from my Strawpage! ✩
