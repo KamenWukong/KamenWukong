@@ -32,4 +32,4 @@ Superfast Jellyfish - Gorillaz, Gruff Rhys, De La Soul
 
 
 <p align="center">
-✩ Recommend me some music from my Strawpage! ✩
+✩ Recommend me some music on my Strawpage! ✩
