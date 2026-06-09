@@ -1,7 +1,7 @@
  > ## <p align="center"> *"Existing is not a crime!!!"*
 
 <p align="center">
-✩ AFK / Off-Tab most of the time, down for whispers but I may not reply! ✩
+✩ AFK / Off-Tab most of the time, whispers are currently off, sorry! ✩
 <p align="center">
 ✩ Sleeping = AFK / Off-Tab ✩
 <p align="center">
