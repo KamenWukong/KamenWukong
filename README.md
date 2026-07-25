@@ -14,6 +14,8 @@
 ✩ I love hearing people talk about their interests! If I don't yap back it's not because I don't like you, my brain's just fried ✩
 <p align="center">
 ✩ I mute weirdos, if you're nasty you're nasty ✩
+ <p align="center">
+✩ I only fully hide proshitters and copiers, so if I can't see you that aint my issue ✩
 <p align="center">
 ✩ I get defensive for friends, just be polite and mature and we're good ✩
 <p align="center">
