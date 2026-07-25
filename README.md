@@ -15,7 +15,7 @@
 <p align="center">
 ✩ I mute weirdos, if you're nasty you're nasty ✩
  <p align="center">
-✩ I only fully hide proshitters and copiers, so if I can't see you that aint my issue ✩
+✩ I only fully hide proshippers and copiers, so if I can't see you that aint my issue ✩
 <p align="center">
 ✩ I get defensive for friends, just be polite and mature and we're good ✩
 <p align="center">
